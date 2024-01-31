@@ -1,0 +1,1 @@
+The script is illustrative, it cannot be executed due to validation and privacy issues.
